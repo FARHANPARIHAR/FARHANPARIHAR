@@ -3,4 +3,7 @@
 - 🌱 I’m currently learning why people do things that are not beneficial to them (and i found 1..family 2..he/she trust world 3..or like me (who doesn't care for themself)hahahahahahaahahahah)
 - 💞️ I’m looking to collaborate with me basically finding hard times loving my-self and mainly accepting,I belive many have lived there live without it and those who have accepted called by many name such as absurd,different.....;
 - 📫 How to reach me through social media ^..^;
+
+
+
 Loads of love to you may be one day at time some place we will meet;
